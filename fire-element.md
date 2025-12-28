@@ -30,6 +30,7 @@ Fire represents the energy of expansion, transformation, and illumination. In th
 
 ## Common Mistakes to Avoid
 - Tensing the shoulders during the Crimson Phoenix Fist, which restricts the flow of qi and reduces power.
+  - **Corrective drill**: Practice the punch slowly with a mirror, ensuring shoulders remain low and relaxed. Visualize power flowing from the dantian through the arm like a flame, not from muscle tension.
 - Holding the breath after the kick, which stagnates Fire energy and delays recovery.
 - Over‑committing the body forward, losing the balanced root required for quick succession of techniques.
 
